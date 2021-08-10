@@ -5,6 +5,7 @@
 - 🌱 I'm still trying to learn
 - 🥅 2021 Goals: Contribute more for open source projects as well as my own personal ones 
 - ⚡ Fun fact: I love to organise and clean everything, yes including my projects
+- Ps: Still working on my contributions, bear with me 🤗
 
 ### Connect with me:
 
